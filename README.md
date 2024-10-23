@@ -1,5 +1,2 @@
 #Curso 2024-2025
-
-
-
-#Que tiene que tener
+#Nelson 23/10/2024
